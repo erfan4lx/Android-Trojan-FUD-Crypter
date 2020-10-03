@@ -5,8 +5,11 @@ Make a 100% FUD Android Trojan and Bypass All Anti-Viruses + Android Google Play
 Contact with me to get the Password of Zip file on :
 
  Telegram : https://t.me/erfan4lx
+ 
  Telegram : https://t.me/hack4lx
+ 
  Email : erfan4lx@gmail.com
+ 
  Email : manifesto.blackhathackingteam@gmail.com
  
  # Our team shop : https://sellix.io/M4nifest0team
